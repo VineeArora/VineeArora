@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 👋 Hi, I’m Vineeta Arora
+- 👋 I’m Vineeta Arora
 - 🧠 An organized, detail-oriented, creative and analysis-focused person, always willing to learn more
 - 🌱 Currently, Learning marketing analysis at WBS Coding School, Berlin
 - 🔭 Looking for opportunities in the marketing and analytics fields

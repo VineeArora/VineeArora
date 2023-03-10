@@ -1,8 +1,5 @@
 ### Hi there 👋
 
-
-Here are some ideas to get you started:
-
 - 👋 Hi, I’m Vineeta Arora
 - 🧠 An organized, detail-oriented, creative and analysis-focused person, always willing to learn more
 - 🌱 Currently, Learning marketing analysis at WBS Coding School, Berlin

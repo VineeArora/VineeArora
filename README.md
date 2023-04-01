@@ -1,8 +1,8 @@
 ### Hi there 👋
 
 - 👋 I’m Vineeta Arora
-- 🧠 An organized, detail-oriented, creative and analysis-focused person, always willing to learn more
-- 🌱 Currently, Learning marketing analysis at WBS Coding School, Berlin
+- 🧠 An organized, detail-oriented, creative and data-focused person, always willing to learn more
+- 🌱 Currently, gaining experience and on a learning path with Digital Marketing and Analytics at WBS Coding School, Berlin
 - 🔭 Looking for opportunities in the marketing and analytics fields
 - 📫 How to reach me: 
     - LinkedIn: https://www.linkedin.com/in/vineeta-arora-marketing

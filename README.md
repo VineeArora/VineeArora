@@ -5,7 +5,7 @@
 - 🌱 Currently, gaining experience and on a learning path with Digital Marketing and Analytics at WBS Coding School, Berlin
 - 🔭 Looking for opportunities in the marketing and analytics fields
 - 📫 How to reach me: 
-    - LinkedIn: https://www.linkedin.com/in/vineeta-arora-marketing
+    - LinkedIn: linkedin.com/in/vineearora
     - Gmail: vineetaarora1990@gmail.com 
 
 

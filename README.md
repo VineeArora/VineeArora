@@ -1,4 +1,4 @@
-### Hi there 👋
+### Namaste | Hi | Hallo 👋
 
 - 👋 I’m Vineeta Arora
 - 🧠 An organized, detail-oriented, creative and data-focused person, always willing to learn more
